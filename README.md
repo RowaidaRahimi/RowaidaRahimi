@@ -23,7 +23,10 @@ Educational platforms for women
 📫 How to Reach Me
 
 Email: rowaidarahimi259@gmail.com
-GitHub:
+
+GitHub: https://github.com/RowaidaRahimi
+
+x: https://x.com/Rowaida_Rahimi
 
 ✨ Fun Fact I believe design is not just about how it looks — it’s about how it feels and how it empowers.
 
